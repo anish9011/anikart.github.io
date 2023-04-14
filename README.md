@@ -1,1 +1,0 @@
-# anikart.github.io
